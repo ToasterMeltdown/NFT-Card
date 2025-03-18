@@ -93,7 +93,9 @@ This challenge is completely free. Please share it with anyone who will find it 
 
 ## Solution
 
-![image](https://github.com/user-attachments/assets/a115cb46-13b2-4512-9227-099390e56593) ![image](https://github.com/user-attachments/assets/a9698e55-b4dd-49e6-9594-e7e5c5092e9b)
+![image](https://github.com/user-attachments/assets/a115cb46-13b2-4512-9227-099390e56593) ![image](https://github.com/user-attachments/assets/a9698e55-b4dd-49e6-9594-e7e5c5092e9b) ![image](https://github.com/user-attachments/assets/5b9a83d6-48aa-406b-976e-b8d437257f5b) ![image](https://github.com/user-attachments/assets/b53eeef3-0a39-4f02-b10b-25878275961b)
+
+
 
 
 
