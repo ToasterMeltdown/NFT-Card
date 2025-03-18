@@ -90,3 +90,10 @@ We love receiving feedback! We're always looking to improve our challenges and o
 This challenge is completely free. Please share it with anyone who will find it useful for practice.
 
 **Have fun building!** 🚀
+
+## Solution
+
+![image](https://github.com/user-attachments/assets/a115cb46-13b2-4512-9227-099390e56593) ![image](https://github.com/user-attachments/assets/a9698e55-b4dd-49e6-9594-e7e5c5092e9b)
+
+
+
